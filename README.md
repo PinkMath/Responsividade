@@ -1,1 +1,0 @@
-# apenas uma responsividade rapida
